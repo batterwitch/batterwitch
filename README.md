@@ -10,7 +10,9 @@
 <p align="center">whisp if i dont respond im afk most of the time
 </br>any ints are fine i literally dgaf if our pixels touch</p>
 <p align="center">idc abt discourse but june "disagreers" gtfo
-</br><b> minors dni</b>
+  </br>alsooo our other host is a jarley fictive so if u have a
+  </br>weird thing w jade or whatever stay away from me lol
+    </br><b> minors dni</b>
 <div align="center">
   <p><img src="https://64.media.tumblr.com/ea3bec92e13be2ee188c58c7d33b107c/60145da17c6a1425-bb/s2048x3072/a62732ca1f85b01c2b009f80d25d1e03208648de.png" style="width: 200px;">
     </br><img src="https://64.media.tumblr.com/b60e6f8a0766321615ca60be39217a74/61229aa35620bdd5-9e/s100x200/59e62cf1a379c22b2c0b0f87051879c6b7356d72.gif" width="100px"> <img src="https://64.media.tumblr.com/13b4bcfcc95d936c333262f766073c94/4809dea13c8d99e3-c2/s100x200/b87bb6b35fc3408c25c69ba3a6f1eb5a0d4127f7.gif" width="100px"> <img src="https://64.media.tumblr.com/57d144c024d70e76b721d9a41c9e6265/320c9144c24c782d-5d/s100x200/9bd4ec434916253108e2d2a4f02bdaff4825c7dc.png" width="100px"></p>
