@@ -7,7 +7,7 @@
   
 <p align="center"><img src="https://files.catbox.moe/x70prr.gif" style="width:145px;"><img src="https://64.media.tumblr.com/797870d5416f9b469ecfb6faa4a93a82/18feee3958bcf533-9f/s250x400/39ef50a5ff759a75b9ef7a6c4e1d43e66de4ff91.png" style="width: 50px;"></p>
 
-<img src="https://64.media.tumblr.com/69cf074f1e9db72e2908e8433b81676b/6e7ac2491a5ef772-37/s250x400/a14e6582223c0e9aafa07e3729c7285f383cffa3.png" align="right" style="width: 80px;">
+<img src="https://64.media.tumblr.com/69cf074f1e9db72e2908e8433b81676b/6e7ac2491a5ef772-37/s250x400/a14e6582223c0e9aafa07e3729c7285f383cffa3.png" align="right" style="width: 70px;">
 
 <p align="right"><b>24</b>  <a href="https://pronouns.cc/@riflekind/roxy">she</a>
   </br>8w7 entp fict
