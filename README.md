@@ -13,7 +13,7 @@
   </br>8w7 entp fict
   </br>sylph of life</p>
 <p align="left">whisp if i don't respond i'm mostly offtab
-</br>i literally dgaf if our pixels touch any its are fine</p>
+</br>i literally dgaf if our pixels touch any ints are fine</p>
 
 <p align="center"><b>minors dni</b>
 </br>idc abt discourse
